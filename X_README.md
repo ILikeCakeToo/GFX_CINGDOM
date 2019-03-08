@@ -7,3 +7,10 @@ please include credit of stuff I made. example: credit to I Like Cake Too#1914 f
 
 
 # Riki's Usage Policy (owo please type your usage policy owo)
+
+
+
+
+
+#Stalker's Usage Policy (pls add)
+
